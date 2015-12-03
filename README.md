@@ -1,2 +1,1 @@
 # joint-force-quarterly
-
